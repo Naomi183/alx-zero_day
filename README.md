@@ -1,1 +1,1 @@
-* programming is nice *
+* speaking out through tech *
